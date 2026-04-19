@@ -1,7 +1,7 @@
 <h6 align="center">
 
 
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ed461225eefb26992cdfa3806c1c6747_c75bcbc5_250.png" width="500" /> 
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_2384bb8b0b5ec976ebef8f446db7a277_57c44a78_400.png" width="500" /> 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_e8ff302fd041d869e90f809a47f0073c_2235e2df_1280.webp" width="600" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝐦𝐲 𝐚𝐭𝐚 .</a><p align="center">  </a><a<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled111_20260418113811.png" width="50" />  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_e0248408b8dc61a5f4ccc469d3ec9920_736611e7_400%20(2).webp" width="300" />  
@@ -14,3 +14,5 @@
 <h6 align="center">
 
 ![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=red)
+
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_2384bb8b0b5ec976ebef8f446db7a277_57c44a78_400.png" width="500" /> 
