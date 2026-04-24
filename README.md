@@ -8,7 +8,7 @@
   
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a6e3b965fef3fc45940e2434e8fc5c7e_a5d4ce04_1280.png" width="300" />
   
-<p align="center"> <a href="https://github.com/Bloodngutsz">𝙖𝙡𝙩 ,, !</a><p align="center"> 
+<p align="center"> <a href="https://github.com/Bloodngutsz">𝐦𝐲 𝐦𝐚𝐢𝐧 . ,,</a><p align="center"> 
 
 𝗶𝗳 𝘆𝗼𝘂 𝗱𝗼𝗻𝘁 𝘀𝘂𝗽𝗽𝗼𝗿𝘁 𝗯𝘁𝗱,𝘆𝗸𝗺𝗲𝘁, 𝗮𝗻𝗱 𝘁𝗽𝗼𝗳 𝗷𝘂𝘀𝘁 𝗱𝗼𝗻𝘁 𝗶𝗻𝘁. 𝗶 𝗔𝗠 𝗡𝗢𝗧 𝗮 𝗽𝗿𝗼, 𝗶 𝗷𝘂𝘀𝘁 𝗲𝗻𝗷𝗼𝘆 𝗺𝗼𝗿𝗲 𝗺𝗮𝘁𝘂𝗿𝗲 𝗴𝗮𝗺𝗲𝘀.
 
