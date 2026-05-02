@@ -14,6 +14,6 @@
 
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=red)
+![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=yellow)
 
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8b3bd9c02e3897d0bfd010134bf8aca8_8db5f144_400.png" width="600" /> 
