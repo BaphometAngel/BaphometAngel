@@ -1,12 +1,12 @@
 <h6 align="center">
 
 
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_2384bb8b0b5ec976ebef8f446db7a277_57c44a78_400.png" width="500" /> 
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8b3bd9c02e3897d0bfd010134bf8aca8_8db5f144_400.png" width="600" /> 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_e8ff302fd041d869e90f809a47f0073c_2235e2df_1280.webp" width="600" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝐦𝐲 𝐚𝐭𝐚 .</a><p align="center">  </a><a<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled111_20260418113811.png" width="50" />  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_e0248408b8dc61a5f4ccc469d3ec9920_736611e7_400%20(2).webp" width="300" />  
   
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a6e3b965fef3fc45940e2434e8fc5c7e_a5d4ce04_1280.png" width="300" />
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_78a72194fa4695a25ed0870ee59db8f9_caef8c07_250.png" width="300" />
   
 <p align="center"> <a href="https://github.com/Bloodngutsz">𝐦𝐲 𝐦𝐚𝐢𝐧 . ,,</a><p align="center"> 
 
@@ -16,4 +16,4 @@
 
 ![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=red)
 
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_2384bb8b0b5ec976ebef8f446db7a277_57c44a78_400.png" width="500" /> 
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8b3bd9c02e3897d0bfd010134bf8aca8_8db5f144_400.png" width="600" /> 
