@@ -2,9 +2,8 @@
 
 
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8b3bd9c02e3897d0bfd010134bf8aca8_8db5f144_400.png" width="600" /> 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_e8ff302fd041d869e90f809a47f0073c_2235e2df_1280.webp" width="600" />
-<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝐦𝐲 𝐚𝐭𝐚 .</a><p align="center">  </a><a<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_f67b71d8eae737146922f8627a260e67_6d3ce524_250.png" width="70" />  
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_e0248408b8dc61a5f4ccc469d3ec9920_736611e7_400%20(2).webp" width="300" />  
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙢𝙮 𝙜𝙝𝙤𝙨𝙩𝙡𝙮 𝙖𝙩𝙖 !</a><p align="center">  </a><a<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_f67b71d8eae737146922f8627a260e67_6d3ce524_250.png" width="70" />  
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_66157b19d2a36828f0e1412a6d73ab8a_e2563136_400.webp" width="300" />  
   
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_78a72194fa4695a25ed0870ee59db8f9_caef8c07_250.png" width="300" />
   
