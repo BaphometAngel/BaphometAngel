@@ -9,7 +9,7 @@
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙢𝙮 𝙖𝙩𝙖 ,</a>   </a><a href="https://github.com/KaliIsLost">𝙢𝙮 𝙡𝙤𝙫𝙚𝙧 . <a href="https://lunalaglazer.straw.page">𝙨𝙩𝙧𝙖𝙬 ,, !</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled182_20260517013715.png" width="320" />
 <p align="center">𐂯 .ᐟ⸝⸝
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/895A1E40-0CA6-45A2-9B22-E1F803A9A0EE.gif" width="300" />    
 <p align="center"> 
 <p align="center">
 <p align="center">
@@ -17,5 +17,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=novatorem&show_offline=false&background_color=d36464&interchange=false&profanity=false&bar_color=c8acac&bar_color_cover=false">
   </a>
 </p>
-  <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 .
+  <p align="center"> <a href="https://github.com/Bloodngutsz">𝙢𝙖𝙞𝙣 ,, .
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ee2cebc5d8824774389041bddd478fe4_f13f003b_400.webp" width="600" />
