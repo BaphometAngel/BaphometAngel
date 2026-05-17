@@ -7,7 +7,7 @@
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled186_20260517014121.png" width="350" />
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled184_20260517014020.png" width="100" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙢𝙮 𝙖𝙩𝙖 ,</a>   </a><a href="https://github.com/KaliIsLost">𝙢𝙮 𝙡𝙤𝙫𝙚𝙧 . <a href="https://lunalaglazer.straw.page">𝙨𝙩𝙧𝙖𝙬 ,, !</a>  
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled173_20260513183132.png" width="320" />
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled182_20260517013715.png" width="320" />
 <p align="center">────୨ৎ────
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
 <p align="center"> 
