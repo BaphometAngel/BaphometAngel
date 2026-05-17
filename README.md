@@ -1,18 +1,21 @@
 <h6 align="center">
 
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ee2cebc5d8824774389041bddd478fe4_f13f003b_400.webp" width="600" />
 
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8b3bd9c02e3897d0bfd010134bf8aca8_8db5f144_400.png" width="600" /> 
-<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙢𝙮 𝙜𝙝𝙤𝙨𝙩𝙡𝙮 𝙖𝙩𝙖 !</a><p align="center"><p align="center"> <a href="https://lunalaglazer.straw.page">𝗺𝘆 𝘀𝗽𝗼𝗼𝗸𝘆 𝘀𝘁𝗿𝗮𝘄 , !</a><p align="center">  </a><a<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_f67b71d8eae737146922f8627a260e67_6d3ce524_250.png" width="70" />  
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_66157b19d2a36828f0e1412a6d73ab8a_e2563136_400.webp" width="300" />  
-  
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_78a72194fa4695a25ed0870ee59db8f9_caef8c07_250.png" width="300" />
-  
-<p align="center"> <a href="https://github.com/Bloodngutsz">𝐦𝐲 𝐦𝐚𝐢𝐧 . ,,</a><p align="center"> 
+  ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
 
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_66157b19d2a36828f0e1412a6d73ab8a_e2563136_400.webp" width="300" /> 
-
-<h6 align="center">
-
-![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=yellow)
-
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8b3bd9c02e3897d0bfd010134bf8aca8_8db5f144_400.png" width="600" /> 
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_3bc537c96442e4dbf41e0eb7a31e03cc_4c65025c_250.png" width="300" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_195c1984c9739208852007c51ddaac31_1bffa8cd_250.png" width="50" />
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝘢𝘵𝘢 .</a>   </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘱𝘶𝘱 .  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled173_20260513183132.png" width="320" />
+<p align="center">────୨ৎ────
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
+<p align="center"> 
+<p align="center">
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=novatorem&show_offline=false&background_color=d36464&interchange=false&profanity=false&bar_color=c8acac&bar_color_cover=false">
+  </a>
+</p>
+  <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 .
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ee2cebc5d8824774389041bddd478fe4_f13f003b_400.webp" width="600" />
