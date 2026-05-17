@@ -2,11 +2,11 @@
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ee2cebc5d8824774389041bddd478fe4_f13f003b_400.webp" width="600" />
 
-  ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
+  ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=yellow)
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_3bc537c96442e4dbf41e0eb7a31e03cc_4c65025c_250.png" width="300" />
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_195c1984c9739208852007c51ddaac31_1bffa8cd_250.png" width="50" />
-<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝘢𝘵𝘢 .</a>   </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘱𝘶𝘱 .  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled186_20260517014121.png" width="350" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled184_20260517014020.png" width="100" />
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙢𝙮 𝙖𝙩𝙖 ,</a>   </a><a href="https://github.com/KaliIsLost">𝙢𝙮 𝙡𝙤𝙫𝙚𝙧 . <a href="https://lunalaglazer.straw.page">𝙨𝙩𝙧𝙖𝙬 ,, !</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled173_20260513183132.png" width="320" />
 <p align="center">────୨ৎ────
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
